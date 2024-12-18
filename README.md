@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Fumske
 - 👀 I’m interested Virtual Assistant Internship/Jobs
-- 🌱 I’m currently available.
-- 💞️ I’m looking to collaborate with other Virtual Assistants...
+- 🌱 I’m currently in available.
+- 💞️ I’m looking to collaborate with other Virtual Assistants and companies...
 - 📫 How to reach me - uabohwo@gmail.com
 
 - ⚡ Fun fact: ...
